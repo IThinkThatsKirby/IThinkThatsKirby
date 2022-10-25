@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with everything.
 - 💬 Ask me about anything.
 - 📫 How to reach me: [EMAIL](mailto:gitblamekirby@ithinkthats.mozmail.com) or Discord: IThinkThatsKirby#1758
-- ⚡ Fun fact: I will be streaming my up-mountain battle to delete JavaScripts bloated corpse soon(TM). Watch me SUFFER :D
+- ⚡ Fun fact: I will be streaming my up-mountain battles. Watch me SUFFER :D
