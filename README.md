@@ -1,6 +1,6 @@
 ### Howdy there 👋
 
-- 🔭 I’m currently working on creating a reactive full stack framework with only HTML CSS and GO.
+- 🔭 I’m currently working on getting a job. :D
 - 🌱 I’m currently learning Helix.
 - 👯 I’m looking to collaborate on everything.
 - 🤔 I’m looking for help with everything.
