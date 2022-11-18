@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with everything.
 - 💬 Ask me about anything.
 - 📫 How to reach me: [EMAIL](mailto:gitblamekirby@ithinkthats.mozmail.com) or Discord: IThinkThatsKirby#1758
-- ⚡ Fun fact: I will be spending my retirement in local politics.
+- ⚡ Fun fact: I'm on the recovering side of trauma :D
