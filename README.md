@@ -1,4 +1,6 @@
 ### Howdy there 👋
 
-- 📫 How to reach me: [EMAIL](mailto:gitblamekirby@ithinkthats.mozmail.com) or Discord: IThinkThatsKirby#1758
+- 📫 How to reach me.
+- 
+- Discord: ithinkthatskirby
 
